@@ -1,3 +1,4 @@
 # repoForPartnership
 
-Hello. Hier ist Marcio
+
+Hi! this is Cansin from Turkey.
